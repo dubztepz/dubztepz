@@ -7,7 +7,11 @@
 </p>
 
 <p align="center">
-Dexter
+Dexter, 16 yo
+everythings a wip rn LOL!!!!
+  
+----
+</p>
 
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=HEYMISERY&count=1)
 
