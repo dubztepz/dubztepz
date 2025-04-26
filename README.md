@@ -8,8 +8,8 @@
 
 <p align="center">
 Dexter, 16 yo
-everythings a wip rn LOL!!!!
   
+everythings a wip rn LOL!!!!
 ----
 </p>
 
