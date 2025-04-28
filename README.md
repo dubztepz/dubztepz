@@ -7,9 +7,8 @@
 </p>
 
 <p align="center">
-Dexter, 16 yo
-  
-everythings a wip rn LOL!!!!
+Dexter . He/him . 16
+</p>
 ----
 </p>
 
